@@ -5,7 +5,7 @@ return `PAYMENT BY Agamz-Bot
 *💰 E-MONEY*
 
 1. GOPAY
-	ㅁ 0821 2764 4092 
+	ㅁ 0812 1240 1781 
 2. OVO
 	ㅁ 0821 2764 4092 
 3. DANA
